@@ -1,1 +1,0 @@
-# task_5-hero-section
